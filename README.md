@@ -1,0 +1,1 @@
+# An-lise-Estat-stica-de-Sal-rios-de-Profissionais-de-Dados
